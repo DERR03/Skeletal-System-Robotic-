@@ -1,1 +1,0 @@
-# Skeletal-System-Robotic-
